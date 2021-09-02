@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @filipevara13
-- 🌱 I’m currently learning ...
+- 👋 Hi, eu sou o @filipevara13
 - 💞️ I’m looking to collaborate on instagram 
 - 📫 How to reach me intagram @filipe_vanda
